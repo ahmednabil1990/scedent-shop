@@ -1,0 +1,1 @@
+# scedent-shop
